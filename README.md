@@ -1,1 +1,0 @@
-# puntoluz-landing
